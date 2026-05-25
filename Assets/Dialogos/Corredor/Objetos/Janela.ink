@@ -1,0 +1,1 @@
+Que vista mais linda! #speaker:Professora #portrait:Professora_Neutra #layout:left
